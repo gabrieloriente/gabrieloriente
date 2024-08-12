@@ -1,4 +1,4 @@
-## Hi there 👋
+Eae pá nois ![](https://media.tenor.com/ZIqNtn3S_MMAAAAM/jair-bolsonaro-bolsonaro.gif) ![](https://media.tenor.com/lkGy4QM0DS4AAAAM/cole-palmer-cold.gif) 
 
 <!--
 **gabrieloriente/gabrieloriente** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
